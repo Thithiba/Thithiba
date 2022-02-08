@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Thithiba
+- 👀 I’m interested in videogames, animes and everything that's interesting
+- 🌱 I’m currently learning how to use GitHub and Git as well
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me 
